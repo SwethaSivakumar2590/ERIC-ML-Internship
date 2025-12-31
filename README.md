@@ -2,5 +2,5 @@
 Swetha Sivakumar
 
 ## Contact Info
-- Email: your.email@example.com
-- Phone: +91-XXXXXXXXXX
+- Email: swethasivakumar2590@gmail.com
+- Phone: +91-8675732590
